@@ -1,7 +1,7 @@
 ### Hi there, i'm global 👋
 
 
-- 🔭 I’m currently working on ExtroMC, and other things 👀 
+- 🔭 I’m currently working on AscoraPvP and other things 👀 
 - 🌱 I’m currently learning a lot of things
 - 📫 How to reach me: on telegram: @wtfglobal
 - 😄 Pronouns: he/him
